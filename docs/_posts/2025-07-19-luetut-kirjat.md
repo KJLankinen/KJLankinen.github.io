@@ -1,4 +1,6 @@
-## 2024### God is not willing, Steven Erikson
+## 2024
+
+### God is not willing, Steven Erikson
 
 Fantasiaa Malazin maailmassa. Hyvä kirja, kantaaottava sotien ja ilmastonmuutoksen suhteen. Paikoin kylmiä väreitä ja kiinnostavia viittauksia menneisiin kirjoihin.
 
