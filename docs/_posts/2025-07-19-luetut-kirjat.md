@@ -86,6 +86,14 @@ Kiintoisaa japanilaista filosofista ja esteettistä tekstiä. Kirjan voisi lukea
 
 Lukaisin iltapalaksi. Hyvää kosmista kauhua. Tyyli edelleen hyvin Lovecraftimainen: kertoja kertoo jostain kohtaamastaan ja korostaa omaa pelkoaan.
 
+### The Cloudspottter's Guide, Gavin Pretor-Pinney
+
+Hieno ja hauska opas pilvien tarkkailuun. Paljon opittavaa ja hauskoja anekdootteja. Kevyt luettava.
+
 ### Artemis, Andy Weir
 
 Ihan hyvä ja helposti luettava tiedetoimintapläjäys. Päähahmo oli hieman ärsyttävä jatkuvan kiroilun ja puolustelevan tyylin takia ja suomennoksen kirjakielinen, mutta amerikkalaistyylinen dialogi oli jotenkin tönkköä.
+
+### Sarasvatin hiekkaa, Risto Isomäki
+
+Aivan erinomainen ympäristöjännäri. Todella hyvin kirjotettu, kaunista kieltä, kiinnostavia hahmoja ja todella jännittävä ja vetävä juoni. 5/5.
