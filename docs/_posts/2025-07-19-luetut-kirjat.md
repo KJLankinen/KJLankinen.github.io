@@ -1,3 +1,5 @@
+Tämä sivu sisältää lyhyet muistiinpanot viimeaikoina lukemistani kirjoista.
+
 ## 2024
 
 ### God is not willing, Steven Erikson
@@ -97,3 +99,7 @@ Ihan hyvä ja helposti luettava tiedetoimintapläjäys. Päähahmo oli hieman ä
 ### Sarasvatin hiekkaa, Risto Isomäki
 
 Aivan erinomainen ympäristöjännäri. Todella hyvin kirjotettu, kaunista kieltä, kiinnostavia hahmoja ja todella jännittävä ja vetävä juoni. 5/5.
+
+### Neverwhere, Neil Gaiman
+
+Toisinaan hauska ja erikoinen fantasiaromaani maanalaisesta Lontoosta. Hyvää kesälukemista, ehkei kuitenkaan palaamisen arvoinen. Paikoin liian pitkiä jaaritteluja. Osa hahmoista ehkä tarpeettoman erikoisia.
