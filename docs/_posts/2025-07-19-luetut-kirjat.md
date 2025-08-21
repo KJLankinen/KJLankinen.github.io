@@ -103,3 +103,7 @@ Aivan erinomainen ympäristöjännäri. Todella hyvin kirjotettu, kaunista kielt
 ### Neverwhere, Neil Gaiman
 
 Toisinaan hauska ja erikoinen fantasiaromaani maanalaisesta Lontoosta. Hyvää kesälukemista, ehkei kuitenkaan palaamisen arvoinen. Paikoin liian pitkiä jaaritteluja. Osa hahmoista ehkä tarpeettoman erikoisia.
+
+### Pimeyden ytimeen, Aarno Malin
+
+Tietokirja Tor-verkosta ja sen sisällöstä. Huijauksia, huumeita, palkkamurhia ja sadistista lapsipornoa. Etenkin lapo-osuus rajua luettavaa. Ei herkimmille.
