@@ -107,3 +107,7 @@ Toisinaan hauska ja erikoinen fantasiaromaani maanalaisesta Lontoosta. Hyvää k
 ### Pimeyden ytimeen, Aarno Malin
 
 Tietokirja Tor-verkosta ja sen sisällöstä. Huijauksia, huumeita, palkkamurhia ja sadistista lapsipornoa. Etenkin lapo-osuus rajua luettavaa. Ei herkimmille.
+
+### Varjot pitenevät, Glen Cook
+
+Samankaltaista yksinkertaista ja melko raadollista kerrontaa palkkasotureista ja sodista, kuin ensimmäinenkin. Ehkä kuitenkin parempi. Kolmas on myös luettava.
