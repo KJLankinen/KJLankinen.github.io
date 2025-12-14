@@ -111,3 +111,7 @@ Tietokirja Tor-verkosta ja sen sisällöstä. Huijauksia, huumeita, palkkamurhia
 ### Varjot pitenevät, Glen Cook
 
 Samankaltaista yksinkertaista ja melko raadollista kerrontaa palkkasotureista ja sodista, kuin ensimmäinenkin. Ehkä kuitenkin parempi. Kolmas on myös luettava.
+
+### Kiduttajan varjo, Uuden Auringon kirja I, Gene Wolfe
+
+Kiinnostava, kiehtova ja otteessaan tiukasti pitävä skififantasia. Neljän kirjan ensimmäinen osa. Epäluotettava kertoja, metatarina, maailman historia ja filosofiset pohdinnat todellisuudesta herättivät ajatuksia. Kunhan muut osat luettu, täytyy lukea kaikki uusiksi.
