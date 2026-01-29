@@ -115,3 +115,11 @@ Samankaltaista yksinkertaista ja melko raadollista kerrontaa palkkasotureista ja
 ### Kiduttajan varjo, Uuden Auringon kirja I, Gene Wolfe
 
 Kiinnostava, kiehtova ja otteessaan tiukasti pitävä skififantasia. Neljän kirjan ensimmäinen osa. Epäluotettava kertoja, metatarina, maailman historia ja filosofiset pohdinnat todellisuudesta herättivät ajatuksia. Kunhan muut osat luettu, täytyy lukea kaikki uusiksi.
+
+### Maan ja taivaan välissä: ihmiskunnan ja ilmaston uusi historia, Peter Frankopan
+
+Kiinnostava, opettava ja masentava historiakatsaus ihmisen ja luonnon suhteeseen. Ihmiset ja eläimet ovat kautta olemassaolonsa vuorovaikuttaneet ympäristönsä kanssa ja muokanneet sitä, mutta teollisen vallankumouksen jälkeen vauhti on kiihtynyt tolkuttomaksi. Ihmiskunta ei tule muuttamaan tapojaan. Tulemme kollektiivisesti törmäämään seinämään, joka ei anna periksi. Siinä vaiheessa ihmiskunta muuttaa tapansa, sillä valtava määrä ihmisiä tulee kuolemaan.
+
+### Sovinnontekijän kynsi, Gene Wolfe
+
+Toinen osa Uuden Auringon kirjaa. Yhtä hyvä kuin ensimmäinen osa, vähintään yhtä monitulkintainen ja haastava. Lisää mysteerejä, myös joitain vastauksia edellisiin.
