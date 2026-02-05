@@ -123,3 +123,7 @@ Kiinnostava, opettava ja masentava historiakatsaus ihmisen ja luonnon suhteeseen
 ### Sovinnontekijän kynsi, Gene Wolfe
 
 Toinen osa Uuden Auringon kirjaa. Yhtä hyvä kuin ensimmäinen osa, vähintään yhtä monitulkintainen ja haastava. Lisää mysteerejä, myös joitain vastauksia edellisiin.
+
+### Saatanallinen paniikki, Katri Ylinen
+
+Saatanan kiinnostava ja hauska tietokirja suomalaisesta saatanallisuudesta.
