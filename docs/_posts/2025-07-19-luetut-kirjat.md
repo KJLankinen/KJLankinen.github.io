@@ -129,3 +129,7 @@ Toinen osa Uuden Auringon kirjaa. Yhtä hyvä kuin ensimmäinen osa, vähintää
 ### Saatanallinen paniikki, Katri Ylinen
 
 Saatanan kiinnostava ja hauska tietokirja suomalaisesta saatanallisuudesta.
+
+### Liktorin miekka, Gene Wolfe
+
+Kolmas osa Uuden Auringon kirjasta. Sarja sen kuin paranee. Hämmentäviä kohtaamisia, lisää kysymyksiä. Onko Severian järjissään? Onko hänellä jakautunut persoona? En tiedä.
