@@ -133,3 +133,11 @@ Saatanan kiinnostava ja hauska tietokirja suomalaisesta saatanallisuudesta.
 ### Liktorin miekka, Gene Wolfe
 
 Kolmas osa Uuden Auringon kirjasta. Sarja sen kuin paranee. Hämmentäviä kohtaamisia, lisää kysymyksiä. Onko Severian järjissään? Onko hänellä jakautunut persoona? En tiedä.
+
+### Autarkin palatsi, Gene Wolfe
+
+Vastauksia kysymyksiin ja reilusti taas lisää kysymyksiä. Erinomainen sarja. Onko Severianilla jakautunut persoona? Voisihan sitä kai niinkin sanoa. Ehdottomasti uuden luennan paikka. Pitänee lukea toisella kertaa englanniksi.
+
+### Kuunpäivän kirjeet, Emmi Itäranta
+
+Luin Uuden Auringon kirjan jälkeen paletin puhdistajana ja välipalana. Huonompi kuin Teemestarin kirja, parempi kuin Kudottujen kujien kaupunki. Päähenkilö oli taas vähän (aurinko)tuulen riepottelema rätti, mutta vähemmän kuin Kudotuissa. Juoni oli jokseenkin ennalta-arvattava. Erittäin kauniita kuvailuja ja tärkeitä sanomia.
