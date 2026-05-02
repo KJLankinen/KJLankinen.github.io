@@ -141,3 +141,7 @@ Vastauksia kysymyksiin ja reilusti taas lisää kysymyksiä. Erinomainen sarja. 
 ### Kuunpäivän kirjeet, Emmi Itäranta
 
 Luin Uuden Auringon kirjan jälkeen paletin puhdistajana ja välipalana. Huonompi kuin Teemestarin kirja, parempi kuin Kudottujen kujien kaupunki. Päähenkilö oli taas vähän (aurinko)tuulen riepottelema rätti, mutta vähemmän kuin Kudotuissa. Juoni oli jokseenkin ennalta-arvattava. Erittäin kauniita kuvailuja ja tärkeitä sanomia.
+
+### Miksi minä hypin, Naoki Higashida
+
+Lyhyt ja nopea luettava. Todella kiinnostavia pohdintoja autistin elämästä, tunteista ja olemisesta. Herättää paljon ajatuksia.
