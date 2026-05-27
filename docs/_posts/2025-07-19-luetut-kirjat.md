@@ -145,3 +145,7 @@ Luin Uuden Auringon kirjan jälkeen paletin puhdistajana ja välipalana. Huonomp
 ### Miksi minä hypin, Naoki Higashida
 
 Lyhyt ja nopea luettava. Todella kiinnostavia pohdintoja autistin elämästä, tunteista ja olemisesta. Herättää paljon ajatuksia.
+
+### Forge of Darkness, Steven Erikson
+
+Luin toistamiseen, sain enemmän irti kuin ekalla kerralla muutama vuosi sitten. Edelleen aika pitkäpiimäistä toisinaan, mutta erittäin kiinnostavia kohtauksia MBotF:n menneisyydestä.
