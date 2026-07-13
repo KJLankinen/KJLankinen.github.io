@@ -153,3 +153,7 @@ Luin toistamiseen, sain enemmän irti kuin ekalla kerralla muutama vuosi sitten.
 ### At the Mountains of Madness, H. P. Lovecraft
 
 Luulin lukeneeni joskus nuorena, mutta en ainakaan muistanut mitään. Parasta Lovecraftia, mitä olen lukenut. Jossain kohdassa oikeasti hitusen pelottava, mitä aika harvoin käy. Kiinnostavaa mytologiaa, upeita ympäristöjä. 4/5.
+
+### Kävelyretkiä Lontoon kaduilla, Charles Dickens
+
+Ihan hauska välipalakirja. Ajankuvauksena kiinnostava. Dickensiltä ei juuri sääliä herunut öykkäreille. Linnaan ja henki pois ja pitkäks aikaa.
