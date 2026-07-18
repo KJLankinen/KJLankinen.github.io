@@ -157,3 +157,7 @@ Luulin lukeneeni joskus nuorena, mutta en ainakaan muistanut mitään. Parasta L
 ### Kävelyretkiä Lontoon kaduilla, Charles Dickens
 
 Ihan hauska välipalakirja. Ajankuvauksena kiinnostava. Dickensiltä ei juuri sääliä herunut öykkäreille. Linnaan ja henki pois ja pitkäks aikaa.
+
+### Viimeisten aikojrn valtiaat, Michael Moorcock
+
+Aika omituista scifiä. Luin välipalaksi. En tiedä luenko lisää miehen kirjoja.
