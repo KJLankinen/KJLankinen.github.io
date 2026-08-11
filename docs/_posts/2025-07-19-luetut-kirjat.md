@@ -158,6 +158,14 @@ Luulin lukeneeni joskus nuorena, mutta en ainakaan muistanut mitään. Parasta L
 
 Ihan hauska välipalakirja. Ajankuvauksena kiinnostava. Dickensiltä ei juuri sääliä herunut öykkäreille. Linnaan ja henki pois ja pitkäks aikaa.
 
-### Viimeisten aikojrn valtiaat, Michael Moorcock
+### Viimeisten aikojen valtiaat, Michael Moorcock
 
 Aika omituista scifiä. Luin välipalaksi. En tiedä luenko lisää miehen kirjoja.
+
+### Pentti Linkola, ihminen ja legenda; Riitta Jotain
+
+Pentti Linkolan elämänkerta. En tiennyt paljoakaan Lknkolasta ennen kirjaa, jälkikäteen paljonkin. Kiinnostava ja ristiriitainen mies. Paljon hyviä ajatuksia, paljon myös sellaisia, joista olen vahvasti eri mieltä. Kirja itsessään oli erittäin hyvä.
+
+### Ancillary Justice, Ann Leckie
+
+Kesti kauan, että löysin inspiraatiota aloittaa, mutta aloittaminen kannatti. Erinomainen kirja. Jonkin verran yhtymäkohtia Malazanin kanssa (imperiumiin liittyvät näkökulmat, filosofiset ja moraaliset pohdinnat, keskittyminen inhimillisiin, ei teknisiin kysymyksiin), vaikka skifiä olikin. Lopun kliimaksi oli erikoinen ja kiinnostava.
