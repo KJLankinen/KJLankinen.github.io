@@ -164,7 +164,7 @@ Aika omituista scifiä. Luin välipalaksi. En tiedä luenko lisää miehen kirjo
 
 ### Pentti Linkola, ihminen ja legenda; Riitta Kylänpää
 
-Pentti Linkolan elämänkerta. En tiennyt paljoakaan Lknkolasta ennen kirjaa, jälkikäteen paljonkin. Kiinnostava ja ristiriitainen mies. Paljon hyviä ajatuksia, paljon myös sellaisia, joista olen vahvasti eri mieltä. Kirja itsessään oli erittäin hyvä.
+Pentti Linkolan elämänkerta. En tiennyt juuri mitään Linkolasta ennen kirjaa, jälkikäteen paljonkin. Kiinnostava ja ristiriitainen mies. Paljon hyviä ajatuksia, paljon myös sellaisia, joista olen vahvasti eri mieltä. Kirja itsessään oli erittäin hyvä.
 
 ### Ancillary Justice, Ann Leckie
 
