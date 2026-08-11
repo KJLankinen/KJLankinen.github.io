@@ -162,7 +162,7 @@ Ihan hauska välipalakirja. Ajankuvauksena kiinnostava. Dickensiltä ei juuri s�
 
 Aika omituista scifiä. Luin välipalaksi. En tiedä luenko lisää miehen kirjoja.
 
-### Pentti Linkola, ihminen ja legenda; Riitta Jotain
+### Pentti Linkola, ihminen ja legenda; Riitta Kylänpää
 
 Pentti Linkolan elämänkerta. En tiennyt paljoakaan Lknkolasta ennen kirjaa, jälkikäteen paljonkin. Kiinnostava ja ristiriitainen mies. Paljon hyviä ajatuksia, paljon myös sellaisia, joista olen vahvasti eri mieltä. Kirja itsessään oli erittäin hyvä.
 
