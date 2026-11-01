@@ -169,3 +169,15 @@ Pentti Linkolan elämänkerta. En tiennyt juuri mitään Linkolasta ennen kirjaa
 ### Ancillary Justice, Ann Leckie
 
 Kesti kauan, että löysin inspiraatiota aloittaa, mutta aloittaminen kannatti. Erinomainen kirja. Jonkin verran yhtymäkohtia Malazanin kanssa (imperiumiin liittyvät näkökulmat, filosofiset ja moraaliset pohdinnat, keskittyminen inhimillisiin, ei teknisiin kysymyksiin), vaikka skifiä olikin. Lopun kliimaksi oli erikoinen ja kiinnostava.
+
+### Pieni terapiakirja ympäristöahdistukseen, Maarit Huuska
+
+Hyviä mietteitä ja lausahduksia.
+
+### Fall of Light, Steven Erikson
+
+Toinen osa Kharkanas-trilogiaa. Hidasta ja vaikeaa luettavaa. Pitäisi ehkä lukea sanakirjan kanssa.
+
+### Luupäät, Mick Herron
+
+Ihan ok vakoilukirja. Suomennos oli aivan täysin paska. Ilmeisesti humoristinen, mutta 400 sivussa oli yksi huvittava kohta. Ehkä suomennos pilasi  senkin, tai sitten miehen huumori ei iske.
